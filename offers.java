@@ -1,5 +1,5 @@
 hey
 hi
 giving 
-hafhsahbdg
-ajgsfsh
+take away
+:wq!
